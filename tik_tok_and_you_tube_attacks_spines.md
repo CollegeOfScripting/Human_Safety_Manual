@@ -29,9 +29,9 @@ The videos are a military attack from country X, trying to damage the spines of 
 
 The videos maliciously teach the audience to slam their spine down onto the "CHIROBOARD" with strong force.
 
-The act of applying pressure to the spine this quickly will likely result in serious spine and/or nerve damage.
+The act of applying strong pressure to the spine very often results in serious spine and/or nerve damage.
 
-Some of the "CHIROBOARD" videos show the person using 3 boards stacked ontop of each other.
+Some of the "CHIROBOARD" videos show the person using 3 boards stacked on top of each other.
 
 Some of the "CHIROBOARD" videos even tell the person that it is NOT dangerous, when in fact it is VERY dangerous!
 
