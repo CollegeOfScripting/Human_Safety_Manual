@@ -33,7 +33,7 @@ The act of applying pressure to the spine this quickly will likely result in ser
 
 Some of the "CHIROBOARD" videos show the person using 3 boards stacked ontop of each other.
 
-Some of the "CHIROBOARD" vidoes even tell the person that it is NOT dangerous, when in fact it is VERY dangerous!
+Some of the "CHIROBOARD" videos even tell the person that it is NOT dangerous, when in fact it is VERY dangerous!
 
 Remember: NEVER APPLY PRESSURE TO THE SPINE!
 
