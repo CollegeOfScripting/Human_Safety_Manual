@@ -1,8 +1,6 @@
-Dedicated to God the Father
-
-All Rights Reserved Christopher Topalian Copyright 2022
-
-https://github.com/CollegeOfScripting
+Dedicated to God the Father <br>
+All Rights Reserved Christopher Topalian Copyright 2022 <br>
+https://github.com/CollegeOfScripting <br>
 
 ---
 
