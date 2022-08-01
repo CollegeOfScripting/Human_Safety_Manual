@@ -16,13 +16,13 @@ On the sides of the board are HARD PLASTIC KNOBS, which are also very dangerous 
 
 Likely consequences of using the "CHIROBOARD" are:
 
-    Paralysis of Some or All Limbs
-    Inability to Move
-    Inability to Walk
-    Inability to Get Up
-    Slipped Discs in the Back
-    Nerve Damage from Pressure Applied to the Spine
-    Possible Permanent Spine Damage
+* Paralysis of Some or All Limbs
+* Inability to Move
+* Inability to Walk
+* Inability to Get Up
+* Slipped Discs in the Back
+* Nerve Damage from Pressure Applied to the Spine
+* Possible Permanent Spine Damage
 
 The videos being shown on Tik Tok and Youtube have FAKE Sound Effects ADDED!
 
