@@ -1,3 +1,7 @@
+Dedicated to God the Father <br>
+All Rights Reserved Christopher Topalian Copyright 2022 <br>
+https://github.com/CollegeOfScripting <br>
+
 Tik Tok and Youtube contain HUNDREDS and HUNDREDS of videos teaching people to use a "CHIROBOARD" to "CRACK" their Spine.
 
 Tik Tok and Youtube do NOT put WARNING labels on these DANGEROUS videos!
