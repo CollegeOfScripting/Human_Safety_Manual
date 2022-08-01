@@ -18,7 +18,7 @@ Likely consequences of using the "CHIROBOARD" are:
 * Inability to Walk
 * Inability to Get Up
 * Slipped Discs in the Back
-* Nerve Damage from Pressure Applied to Spine
+* Nerve Damage from Pressure Applied to the Spine
 * Possible Permanent Spine Damage
 
 The videos being shown on Tik Tok and Youtube have FAKE Sound Effects ADDED!
