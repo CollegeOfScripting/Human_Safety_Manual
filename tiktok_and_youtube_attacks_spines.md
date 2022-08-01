@@ -8,7 +8,7 @@ Tik Tok and Youtube contain HUNDREDS and HUNDREDS of videos teaching people to u
 
 Tik Tok and Youtube do NOT put WARNING labels on these DANGEROUS videos!
 
-The problem with the "CHIROBOARD" is that the human spine is NOT meant to be pushed in with pressure.
+The problem with the "CHIROBOARD" is that the human spine is NOT meant to be pushed in with strong pressure.
 
 The human spine has NERVES and DISCS that cannot have TOO much pressure applied to them without tragedy!
 
